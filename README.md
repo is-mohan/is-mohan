@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on general
 - 📫 How to reach me ...
 - 😄 Pronouns: ...
-- ⚡ Fun fact: I like to sit in a chair for mare than 6 hours doing nothing
+- ⚡ Fun fact: I like music. Its something i'm attached to.
 <!---
 is-mohan/is-mohan is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
